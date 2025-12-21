@@ -3,5 +3,4 @@
 
                               . . . do not interact : tadc , countryhumans , forsaken , dod ...
 
-![f01764518103293ae3f6d976ea66073e](https://github.com/user-attachments/assets/7c86d032-f343-4da9-a158-5749dbfc78bb)
-
+<img width="1200" height="750" alt="image" src="https://github.com/user-attachments/assets/cd26eda2-e881-42fa-a314-8338f71d17c0" />
