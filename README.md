@@ -1,5 +1,6 @@
 # basic info about me 𖹭
   i cuddle freely if your status says so , i recommend to whisper to interact so i can see your messages.
+  
                      ᡕᠵデᡁ᠊╾━ - - - interests : transofmers , rvb , phighting , gundam , halo , dark souls & elden ring , mcb ...
 
                               . . . do not interact : tadc , forsaken , dod , helluva boss/hazbin hotel ...
