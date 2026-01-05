@@ -1,7 +1,7 @@
 # basic info about me 𖹭
-  i cuddle freely if your status says so , i recommend to whisper to interact so i can see your messages.
+  I cuddle freely if your status says so , and I also recommend to whisper to interact so I can see your messages.
   
-                     ᡕᠵデᡁ᠊╾━ - - - interests : transofmers , rvb , phighting , gundam , halo , dark souls & elden ring , mcb ...
+                              ᡕᠵデᡁ᠊╾━ - - - you can use my ponies as inspiration freely, but do not copy.
 
                               . . . do not interact : tadc , forsaken , dod , helluva boss/hazbin hotel ...
 
