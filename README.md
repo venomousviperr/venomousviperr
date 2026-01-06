@@ -9,7 +9,7 @@
                               
   - I don't usually approach large groups of people, but I can here and there.
   - I make it very obvious when I don't want to be around certain people.
-- Don't feel pressured to start a conversation! I'm usually offtab and will respond late. :)
+- Don't feel obligated to start a conversation! I'm usually offtab and will respond late. :)
 - Please do not interact if you like any of the things I put in my DNI list (in my carrd and in here), I do not like the community at all. While it may not be directed towards you, I tend to avoid people in my DNI list.
   - I also don't really enjoy conversations that turn inappropriate. I can handle a lot of jokes and humor, but I will eventually stop talking if the conversation goes off the rail.
 - Overall, don't be afraid to approach me! Aside from my DNI list, I'm easy to talk to and I'm very social!
