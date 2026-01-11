@@ -1,5 +1,6 @@
 # basic info about me 𖹭
-<img width="1199" height="492" alt="image_2026-01-05_172600932" src="https://github.com/user-attachments/assets/c832a3d0-2649-49ef-a017-81366f1ccd85" /> 
+<img width="1200" height="600" alt="image" src="https://github.com/user-attachments/assets/6f512f62-57b9-460c-ba9b-e807c99f0e01" />
+
 
 - I cuddle freely if your status says so , and I also recommend to whisper to interact so I can see your messages.
   
