@@ -1,8 +1,11 @@
 # basic info about me 𖹭
-<img width="1200" height="600" alt="image" src="https://github.com/user-attachments/assets/6f512f62-57b9-460c-ba9b-e807c99f0e01" />
+![tumblr_n73z10LzbR1qep3h6o1_500](https://github.com/user-attachments/assets/7234bf69-8ce6-4b63-8b4a-10ad27bd6062)![tumblr_9300952cf19cc3efa247a7e616269f18_a40ef9f0_540-ezgif com-resize](https://github.com/user-attachments/assets/e923aacc-6a58-4b30-8977-339e97359968)
 
 
-- I cuddle freely if your status says so , and I also recommend to whisper to interact so I can see your messages.
+
+
+
+-  Whisper to interact so I can see your messages.
   
                               ᡕᠵデᡁ᠊╾━ - - - you can use my ponies as inspiration freely, but do not copy.
 
