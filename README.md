@@ -1,5 +1,7 @@
 # basic info about me 𖹭
-![tumblr_n73z10LzbR1qep3h6o1_500](https://github.com/user-attachments/assets/7234bf69-8ce6-4b63-8b4a-10ad27bd6062)![tumblr_9300952cf19cc3efa247a7e616269f18_a40ef9f0_540-ezgif com-resize](https://github.com/user-attachments/assets/e923aacc-6a58-4b30-8977-339e97359968)
+![tumblr_n73z10LzbR1qep3h6o1_500-ezgif com-resize](https://github.com/user-attachments/assets/b6c712a9-6cc9-40f4-8c96-cdb26c5c1dc1)![tumblr_9300952cf19cc3efa247a7e616269f18_a40ef9f0_540-ezgif com-resize (1)](https://github.com/user-attachments/assets/e9bebbe8-3ece-4bc6-9689-a11ac09ce6e9)
+
+
 
 
                                                                kobra / viper 
