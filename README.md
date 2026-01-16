@@ -1,6 +1,7 @@
 # basic info about me 𖹭
 ![tumblr_n73z10LzbR1qep3h6o1_500-ezgif com-resize](https://github.com/user-attachments/assets/bc5bc5da-c012-4cf1-8557-843d31eb3e22)
-![tumblr_9300952cf19cc3efa247a7e616269f18_a40ef9f0_540-ezgif com-resize](https://github.com/user-attachments/assets/55ae4e63-331d-411f-b681-24ae0a35d8e7)
+![tumblr_9300952cf19cc3efa247a7e616269f18_a40ef9f0_540-ezgif com-resize (1)](https://github.com/user-attachments/assets/4f842339-502d-4b39-aa72-a72680d5d3aa)
+
 
 
 
