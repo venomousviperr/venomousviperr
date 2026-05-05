@@ -1,1 +1,1 @@
-<img width="1133" height="566" alt="yareli prime" src="https://github.com/user-attachments/assets/c681871e-5c65-4b0c-9d22-43e27f0b2610" />
+<img width="2000" height="1000" alt="_GH" src="https://github.com/user-attachments/assets/2d82be99-a7fe-49b0-bd51-56f1c433052a" />
