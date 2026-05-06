@@ -17,5 +17,5 @@ you can call me viper or kobra, <ins>preferably kobra</ins>.
   ✦
 <a href="https://venomviperr.carrd.co">carrd</a>
   ✦
-<a href="https://pronouns.cc/@venomousviprr>">pronouns.cc</a>
+<a href="https://pronouns.cc/@venomousviprr">pronouns.cc</a>
 </p>
