@@ -5,15 +5,17 @@
   </a>
 </p>
 <p align="center">
-<ins>fromsoftware</ins> & mech enthusiast 
+fromsoftware & mech enthusiast 
 </p>
 <p align="center">
-you can call me viper or kobra, preferably kobra.
+you can call me viper or kobra, <ins>preferably kobra</ins>.
 </p>
 <p align="center">
- <a href="https://vvenomviperr.straw.page">straw</a>
+ <a href="https://vvenomviperr.straw.page">strawpage</a>
   ✦
- <a href="https://venomviper.atabook.org">ata</a>
+ <a href="https://venomviper.atabook.org">atabook</a>
   ✦
 <a href="https://venomviperr.carrd.co">carrd</a>
+  ✦
+<a href="https://pronouns.cc/@venomousviprr>">pronouns.cc</a>
 </p>
