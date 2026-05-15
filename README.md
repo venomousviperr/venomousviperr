@@ -1,4 +1,4 @@
-<img width="1167" height="580" alt="image" src="https://github.com/user-attachments/assets/bf223805-59a9-4f43-b598-8d01ef5a2191" />
+<img width="1166" height="578" alt="image" src="https://github.com/user-attachments/assets/d3025f09-fd2c-475a-a439-3fbcf7605be2" />
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
