@@ -1,5 +1,8 @@
-<img width="1166" height="578" alt="image" src="https://github.com/user-attachments/assets/d3025f09-fd2c-475a-a439-3fbcf7605be2" />
 
+<img width="1166" height="578" alt="image" src="https://github.com/user-attachments/assets/d3025f09-fd2c-475a-a439-3fbcf7605be2" />
+<p align="center">
+<img src="https://komarev.com/ghpvc/?username=venomousviperr&color=2a2e33&label=Hollowed+Souls&abbreviated=true&style=plastic)"/>
+</p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31eblinaygf6l73oimym27rq5imm&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=a4b681&bar_color_cover=false">
