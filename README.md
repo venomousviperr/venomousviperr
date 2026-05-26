@@ -1,4 +1,4 @@
-<img width="1200" height="590" alt="image" src="https://github.com/user-attachments/assets/902bd008-7ca1-45b0-9350-42adbb2b876c" /></br>
+<img width="1200" height="712" alt="image" src="https://github.com/user-attachments/assets/2c80d35b-aed5-4248-aa88-7c5a8782efa8" /></br>
 
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=venomousviperr&color=2a2e33&label=Hollowed+Souls&abbreviated=true&style=plastic)"/>
