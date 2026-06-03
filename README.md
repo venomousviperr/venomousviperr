@@ -16,11 +16,11 @@ fromsoftware & mech enthusiast
 you can call me viper or kobra, <ins>preferably kobra</ins>.
 </p>
 <p align="center">
- <a href="https://vvenomviperr.straw.page">strawpage</a>
+ <a href="https://vvenomviperr.straw.page">i.</a>
   ✦
- <a href="https://venomviper.atabook.org">atabook</a>
+ <a href="https://venomviper.atabook.org">ii.</a>
   ✦
-<a href="https://vvenomviper.carrd.co">carrd</a>
+<a href="https://vvenomviper.carrd.co">iii.</a>
   ✦
-<a href="https://pronouns.cc/@venomousviprr">pronouns.cc</a>
+<a href="https://pronouns.cc/@venomousviprr">iv.</a>
 </p>
