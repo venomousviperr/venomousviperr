@@ -20,7 +20,5 @@ you can call me viper or kobra, <ins>preferably kobra</ins>.
   ✦
  <a href="https://venomviper.atabook.org">ii.</a>
   ✦
-<a href="https://vvenomviper.carrd.co">iii.</a>
-  ✦
-<a href="https://pronouns.cc/@venomousviprr">iv.</a>
+<a href="https://pronouns.cc/@venomousviprr">iii.</a>
 </p>
