@@ -1,5 +1,6 @@
-<img width="1051" height="523" alt="image" src="https://github.com/user-attachments/assets/84a2d161-ec65-46bf-9d8e-5f0736187e09" />
-
+<p align="center">
+<img width="540" height="304" alt="amir beckett" src="https://github.com/user-attachments/assets/0c22f18f-782c-4d91-8999-998ebf8f2f23" />
+</p>
 
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=venomousviperr&color=2a2e33&label=Hollowed+Souls&abbreviated=true&style=plastic)"/>
