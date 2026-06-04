@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=venomousviperr&color=2a2e33&label=Hollowed+Souls&abbreviated=true&style=plastic)"/>
+<img src="https://komarev.com/ghpvc/?username=venomousviperr&color=2a2e33&label=Hollowed+Ones&abbreviated=true&style=plastic)"/>
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
