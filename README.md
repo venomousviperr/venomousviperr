@@ -1,5 +1,5 @@
 <p align="center">
-<img width="540" height="304" alt="amir beckett" src="https://github.com/user-attachments/assets/0c22f18f-782c-4d91-8999-998ebf8f2f23" />
+<img width="640" height="358" alt="dark-soul-abyss-watcher" src="https://github.com/user-attachments/assets/50427cbf-8f44-4a31-81a8-1b72e7703e03" />
 </p>
 
 <p align="center">
