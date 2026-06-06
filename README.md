@@ -17,7 +17,7 @@ fromsoftware & mech enthusiast
 you can call me viper or kobra, <ins>preferably kobra</ins>.
 </p>
 <p align="center">
- <a href="https://vvenomviperr.straw.page">i.</a>
+ <a href="https://rentry.co/vvvicious">i.</a>
   ✦
  <a href="https://venomviper.atabook.org">ii.</a>
   ✦
