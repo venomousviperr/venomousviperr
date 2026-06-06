@@ -1,7 +1,7 @@
 <p align="center">
-<img width="640" height="358" alt="dark-soul-abyss-watcher" src="https://github.com/user-attachments/assets/50427cbf-8f44-4a31-81a8-1b72e7703e03" />
+<img width="2048" height="1173" alt="image" src="https://github.com/user-attachments/assets/78b9c801-72d1-4f97-8a02-67a6fb07b6bd" />
 </p>
-
+</br>
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=venomousviperr&color=2a2e33&label=Hollowed+Ones&style=plastic)"/>
 </p>
