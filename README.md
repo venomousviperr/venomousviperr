@@ -11,7 +11,7 @@
   </a>
 </p>
 <p align="center">
-fromsoftware & mech enthusiast 
+c+h always allowed unless said so. 
 </p>
 <p align="center">
 you can call me viper or kobra, <ins>preferably kobra</ins>.
