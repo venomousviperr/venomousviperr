@@ -14,11 +14,6 @@
   </a>
 </p>
 <p align="center">
- <a href="https://rentry.co/vvvicious">i.</a>
+ <a href="https://venomviper.atabook.org">atabook.</a>
   ✦
- <a href="https://venomviper.atabook.org">ii.</a>
-  ✦
-<a href="https://guns.lol/venomousviper">iii. </a>
-  ✦
-<a href="https://pronouns.cc/@venomousviprr">iv.</a>
-</p>
+<a href="https://guns.lol/venomousviper">guns.lol. </a>
