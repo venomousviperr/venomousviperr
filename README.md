@@ -18,5 +18,7 @@
   ✦
  <a href="https://venomviper.atabook.org">ii.</a>
   ✦
-<a href="https://pronouns.cc/@venomousviprr">iii.</a>
+<a href="https://guns.lol/venomousviper">iii. </a>
+  ✦
+<a href="https://pronouns.cc/@venomousviprr">iv.</a>
 </p>
