@@ -1,5 +1,5 @@
 <p align="center">
-<img width="1198" height="660" alt="image" src="https://github.com/user-attachments/assets/af47ffe1-3c15-4cd2-b913-0122c1654e89" />
+<img width="1200" height="656" alt="image" src="https://github.com/user-attachments/assets/c9196b6b-e586-4815-a1dc-4af72dc2a0d3" />
 </p>
 <p align="center">
 𝙄 𝙖𝙨𝙠 𝙢𝙮𝙨𝙚𝙡𝙛 𝙝𝙤𝙬 𝙄’𝙢 𝙨𝙩𝙞𝙡𝙡 𝙖𝙡𝙞𝙫𝙚...𝙖𝙣𝙙 𝙖𝙡𝙡 𝙄 𝙘𝙖𝙣 𝙩𝙝𝙞𝙣𝙠 𝙞𝙨 "𝙨𝙝𝙚𝙚𝙧 𝙡𝙪𝙘𝙠".
