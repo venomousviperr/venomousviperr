@@ -1,5 +1,5 @@
 <p align="center">
-<img width="1200" height="656" alt="image" src="https://github.com/user-attachments/assets/c9196b6b-e586-4815-a1dc-4af72dc2a0d3" />
+<img width="1920" height="1080" alt="Warframe0018" src="https://github.com/user-attachments/assets/e3d384c1-4d7a-40e1-8c8d-2b0a44778fb7" />
 </p>
 <p align="center">
 𝙄 𝙖𝙨𝙠 𝙢𝙮𝙨𝙚𝙡𝙛 𝙝𝙤𝙬 𝙄’𝙢 𝙨𝙩𝙞𝙡𝙡 𝙖𝙡𝙞𝙫𝙚...𝙖𝙣𝙙 𝙖𝙡𝙡 𝙄 𝙘𝙖𝙣 𝙩𝙝𝙞𝙣𝙠 𝙞𝙨 "𝙨𝙝𝙚𝙚𝙧 𝙡𝙪𝙘𝙠".
