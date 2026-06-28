@@ -1,5 +1,5 @@
 <p align="center">
-<img width="1920" height="1080" alt="Warframe0018" src="https://github.com/user-attachments/assets/e3d384c1-4d7a-40e1-8c8d-2b0a44778fb7" />
+<img width="498" height="281" alt="jester-darkest-dungeon-2" src="https://github.com/user-attachments/assets/ea156756-6407-4021-85e2-7d650b82797d" />
 </p>
 <p align="center">
 𝙄 𝙖𝙨𝙠 𝙢𝙮𝙨𝙚𝙡𝙛 𝙝𝙤𝙬 𝙄’𝙢 𝙨𝙩𝙞𝙡𝙡 𝙖𝙡𝙞𝙫𝙚...𝙖𝙣𝙙 𝙖𝙡𝙡 𝙄 𝙘𝙖𝙣 𝙩𝙝𝙞𝙣𝙠 𝙞𝙨 "𝙨𝙝𝙚𝙚𝙧 𝙡𝙪𝙘𝙠".
