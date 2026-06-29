@@ -19,3 +19,6 @@
 <a href="https://rentry.co/vvvicious">rentry. </a>
   ✦
 <a href="https://pronouns.cc/@venomousviprr">prns.cc </a>
+ <p align="center"> 
+<a href="https://tamanotchi.world/32961c"><img src="https://tamanotchi.world/i2/32961" alt="It's tamaNOTchi! Click to feed!"></a>
+ </p>
