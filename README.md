@@ -16,4 +16,4 @@
 <p align="center">
  <a href="https://venomviper.atabook.org">atabook.</a>
   ✦
-<a href="https://guns.lol/venomousviper">guns.lol. </a>
+<a href="https://vvenomviper.carrd.co/">carrd. </a>
