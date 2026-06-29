@@ -17,3 +17,5 @@
  <a href="https://venomviper.atabook.org">atabook.</a>
   ✦
 <a href="https://rentry.co/vvvicious">rentry. </a>
+  ✦
+<a href="https://pronouns.cc/@venomousviprr">prns.cc </a>
