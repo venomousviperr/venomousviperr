@@ -2,7 +2,7 @@
 <img width="498" height="281" alt="jester-darkest-dungeon-2" src="https://github.com/user-attachments/assets/ea156756-6407-4021-85e2-7d650b82797d" />
 </p>
 <p align="center">
-𝙄 𝙖𝙨𝙠 𝙢𝙮𝙨𝙚𝙡𝙛 𝙝𝙤𝙬 𝙄’𝙢 𝙨𝙩𝙞𝙡𝙡 𝙖𝙡𝙞𝙫𝙚...𝙖𝙣𝙙 𝙖𝙡𝙡 𝙄 𝙘𝙖𝙣 𝙩𝙝𝙞𝙣𝙠 𝙞𝙨 "𝙨𝙝𝙚𝙚𝙧 𝙡𝙪𝙘𝙠".
+"𝙇𝙞𝙛𝙚 𝙞𝙨 𝙖 𝙛𝙤𝙤𝙡'𝙨 𝙚𝙧𝙧𝙖𝙣𝙙. 𝙎𝙤 𝙥𝙡𝙚𝙖𝙨𝙚, 𝙚𝙭𝙘𝙪𝙨𝙚 𝙢𝙚."
 </p>
 </br>
 <p align="center">
